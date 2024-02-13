@@ -8,3 +8,5 @@
 Narawi30/Narawi30 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+https://www.tiktok.com/@djcopyright1?_t=8iYz6dTn5Mn&_r=1
